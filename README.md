@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Terrible-creeper
-- Discord Creeper#9002
+- Discord: @terriblecreeper
